@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with custom meme coin sniper bot | private-RPC-nodes + MEV-detection. Featuring private-RPC-nodes and MEV-detection, it's the best choice for
 
 
 
